@@ -1,0 +1,2 @@
+# DISCORDUN-MUHTEMEL-EMANETLERI
+Şşttt Çaktırmayın Ha
